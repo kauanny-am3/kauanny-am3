@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kauanny-am3;
 - 👀 I’m interested in games, movies and books;
-- 🌱 I’m currently learning Harry Potter and the Philosopher's Stone;
+- 🌱 I’m currently reading Harry Potter and the Philosopher's Stone;
 - 📫 How to reach me in kauanny.vieira@am3solucoes.com.br
 - ⚡ Fun fact: i'm dev, but i don't like coffee :)
 
