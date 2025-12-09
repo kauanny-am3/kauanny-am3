@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Kauanny Vieira;
 - 👀 I’m interested in games, movies and books;
-- 🌱 I’m currently reading Harry Potter and the Philosopher's Stone;
+- 🌱 I’m currently reading Harry Potter and the Chamber of Secrets;
 - 📫 How to reach me in kauanny.vieira@am3solucoes.com.br
 - ⚡ Fun fact: i'm dev, but i don't like coffee :)
 
